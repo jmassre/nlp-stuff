@@ -17,22 +17,13 @@ They did it on the eighth anniversary of Rivera’s lowest moment, when he blew 
 
 “We play the game the right way,” Jeter said on the podium behind second base, cradling the Commissioner’s Trophy. “And we deserve to be standing here.”
 
-Journalism for every part of life.
-Subscribe for $1 a week.
+
 Pettitte became the second pitcher to win all three clinching games of a postseason. The other was Boston’s Derek Lowe in 2004, when the Yankees lost a three-games-to-none lead to the Red Sox, fumbling away a pennant and plunging into a postseason funk.
 
 Pettitte was gone that autumn, part of a three-year sojourn to his Houston hometown. Otherwise, Pettitte, Rivera, Jeter and Posada have been Yankees since 1995, through dynasty and drought and back to the top. The have each earned five championship rings, one more than Babe Ruth won for the Yankees, who will be honored with a parade in Manhattan on Friday.
 
 It is the seventh championship for the principal owner George Steinbrenner, 79, who was not at Yankee Stadium on Wednesday.
 
-Editors’ Picks
-
-The Best and Worst Moments of the 2020 Emmys
-
-Help! My Boss Is a Conspiracy Theorist
-
-Martha Stewart, Blissed Out on CBD, Is Doing Just Fine
-Continue reading the main story
 “It’s been a while  it’s been nine years,” said his son, Hal Steinbrenner, the managing general partner. “I just talked to him today. He was a little bit excited and nervous, as we all were. But this team, they fought and they fought and they fought. They never gave up.”
 
 Working on three days’ rest, Pettitte, 37, looked ragged at times with five walks and three strikeouts. But he held up better than the Phillies’ Pedro Martinez, 38, his old Boston adversary, who lasted just four innings.
